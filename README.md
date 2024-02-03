@@ -24,3 +24,8 @@
 
 Gracias por ser parte de nuestro proyecto. ¡Esperamos que disfrutes de tus tarejtas animadas!
 
+![image](https://github.com/FrancisoRocha/Tarjetas-animadas/assets/122055396/8072d444-0871-48d6-8537-d2e276af94d8)
+
+![2024-02-02](https://github.com/FrancisoRocha/Tarjetas-animadas/assets/122055396/8e218ace-15e7-4495-8f2b-2d0f9ed8781d)
+
+
